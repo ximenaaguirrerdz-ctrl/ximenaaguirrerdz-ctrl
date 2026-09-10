@@ -2,7 +2,7 @@
 
 I’m a Madrid-based communications, PR and field marketing lead with 10 years across B2B tech, fintech and SaaS in Europe and Latin America.
 
-My work usually starts when something important is hard to explain: a new product, a new category, a market change, a founder with something worth saying, or an event that needs to lead somewhere.
+Complex product. Different markets. A lot of people to align. That’s usually where I’m useful.
 
 I ask questions, find the useful story and stay close enough to the work to see what happens next..
 
@@ -10,10 +10,10 @@ I like getting to the part people actually care about.
 
 I’m a Madrid-based communications, PR and field marketing lead with 10 years across B2B tech, fintech and SaaS in Europe and Latin America.
 
-My work usually starts when something important is hard to explain: a new product, a new category, a market change, a founder with something worth saying, or an event that needs to lead somewhere.
-
 I ask questions, find the useful story and stay close enough to the work to see what happens next.
 My work sits where narrative meets commercial reality: make the complex clear, create a moment people want to enter and build the operating rhythm that helps the idea move—from newsroom to room, and from room to pipeline.
+
+I’ve worked across Europe and Latin America, building and localizing stories.My work is inherently cross-functional: Product, Sales, Data, leadership, People teams, agencies, media, social media, partners and customers.
 
 [Portfolio](https://ximenaaguirrerdz-ctrl.github.io) · [90-second recruiter view](https://ximenaaguirrerdz-ctrl.github.io/recruiter/) · [Case studies](https://ximenaaguirrerdz-ctrl.github.io/case-studies/) · [LinkedIn](https://www.linkedin.com/in/ximena-aguirre-rodr%C3%ADguez-/)
 
