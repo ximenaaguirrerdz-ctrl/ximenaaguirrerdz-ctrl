@@ -1,4 +1,4 @@
-# I like getting to the part people actually care about.
+The product is there but somehow the story still isn’t clear?
 
 I’m a Madrid-based communications, PR and field marketing lead with 10 years across B2B tech, fintech and SaaS in Europe and Latin America.
 
